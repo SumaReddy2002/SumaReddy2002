@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SumaReddy2002
+- 👋 Hi, I’m @SumaReddy21
 - 👀 I’m interested in learning new skills
 - 🌱 I’m currently learning new skills to upgrade
 - 💞️ I’m looking to collaborate on 
